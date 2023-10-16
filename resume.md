@@ -2,7 +2,7 @@
 
 *Contact:*     (201) 899-5656
                chen.rebecca@northeastern.edu
-
+               
 *Education:*   2019 - 2023    Dumont High School
                               GPA: 4.238 | Class Rank: 16/194
                2023 - 2027
