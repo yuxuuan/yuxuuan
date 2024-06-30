@@ -7,4 +7,4 @@
                               GPA: 4.238 | Class Rank: 16/194
                2023 - 2027
                               Northeastern University
-                              B.S., Computer Science & Political Science
+                              B.S., Computer Science Engineering
